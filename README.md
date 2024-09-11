@@ -2,20 +2,29 @@
                             
 
 
-Gogosto de anime🤔
+Amo minha familia e meus amios em geral
 
-![Alt](https://i.pinimg.com/736x/c9/67/6f/c9676f537cbc72e248c82c38b18ba7a5.jpg)
+Gosto de assistir anime, desenha e pintar
 
-
-Gosto de matemática e pensameno computacional
-
-![Alt](https://s2.glbimg.com/vFDVZ8g6LyLOB_LdutPckPQ3Uoo=/e.glbimg.com/og/ed/f/original/2014/02/20/equation.jpg)
+Tambem gosto de matemática e pensameno computacional
 
 tambem curto jogos de tiro ︻┳═一   
 
 
+
+
+
+![Alt](https://i.pinimg.com/736x/c9/67/6f/c9676f537cbc72e248c82c38b18ba7a5.jpg)
+
+
+
+![Alt](https://s2.glbimg.com/vFDVZ8g6LyLOB_LdutPckPQ3Uoo=/e.glbimg.com/og/ed/f/original/2014/02/20/equation.jpg)
+
+ 
+
+
 ![Alt](https://img.freepik.com/fotos-premium/papel-de-parede-colorido-para-jogos-call-of-duty-4k_669273-269.jpg)
 
-amo minha familia
+
 
 ![Alt](https://www.fashionbubbles.com/wp-content/uploads/2021/11/7_dia_da_familia.jpg)
